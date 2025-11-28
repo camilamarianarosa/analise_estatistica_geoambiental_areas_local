@@ -84,7 +84,4 @@ O conjunto analisado não apresentou diferenças significativas entre grupos ou 
 sugerindo que os ambientes avaliados possuem condições semelhantes nos indicadores físico-químicos e geoquímicos considerados.
 
 Autora
-Camila Mariana - Graduação em Oceanografia (UERJ)
-
-Autora
 Camila Mariana – Graduação em Oceanografia (UERJ)
